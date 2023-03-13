@@ -1,1 +1,0 @@
-# mertcanersoy.github.io
